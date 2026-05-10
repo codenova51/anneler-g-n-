@@ -1,2 +1,2 @@
-# anneler-g-n-
-anneler günü
+# anneler günü
+anneler günü kutlu olsun
